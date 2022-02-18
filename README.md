@@ -1,1 +1,0 @@
-# raiskanov_rasul
